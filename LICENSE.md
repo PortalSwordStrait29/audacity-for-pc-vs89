@@ -1,4 +1,4 @@
-# 
+# Audacity for PC | Audacity for Windows secure Script: pitch-shifting & effects-library offers the most advanced Audacity for PC | Audacity for Windows script, with pitch-shifting
 
 
 
